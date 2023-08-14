@@ -6,4 +6,4 @@
 
 🚀 I’m currently learning everything;
 
-💀 I'm in love with rock and heavy metal;
+
